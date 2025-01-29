@@ -1,0 +1,1 @@
+# cur_eq_2022_topic_pol
